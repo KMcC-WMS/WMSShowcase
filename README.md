@@ -79,7 +79,7 @@ Act III Scene 4, lines 59-107
 ![](https://i.pinimg.com/736x/cc/66/1d/cc661d7341e532165c68d15637e204ef.jpg)
 
 Act IV Scene 1, lines 13-60
-*by Adelaide Banks
+*by Rowan Gillian
 
 #### Othello: Act IV Scene 3 {href=https://www.juncture-digital.org/lilahagen/essays/OTHELLO.md}
 
