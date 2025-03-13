@@ -46,6 +46,13 @@ Act III Scene 3, lines 266-299
 Act III Scene 3, lines 279-318
 *by Caleb Patterson
 
+#### Othello: Iago's Manipulation and Othello's Reaction {href=https://www.juncture-digital.org/philipwilliams2/essays}
+
+![](https://upload.wikimedia.org/wikipedia/commons/9/9e/Bust_Portrait_of_Man_in_a_Plumed_Hat_Met_DP890235.jpg)
+
+Act III Scene 3, lines 367-417
+*by Philip Williams
+
 #### Othello: Losing Sleep {href=https://www.juncture-digital.org/mxs9959/essays/othello_project/passage.md}
 
 ![](https://upload.wikimedia.org/wikipedia/commons/2/29/Venetian_grenadiers_attack_an_Ottoman_fort%2C_1717.jpg)
