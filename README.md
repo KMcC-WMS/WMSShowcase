@@ -17,12 +17,20 @@ Act III Scene 3, lines 182-223
 Act III Scene 3, lines 224-267
 *by Julia Stallworth
 
+
 #### Othello: Act III Scene 3 {href=https://www.juncture-digital.org/annakatehorner/essays}
 
 ![](https://upload.wikimedia.org/wikipedia/commons/b/b1/Othello_and_Desdemona_in_Venice_by_Th%C3%A9odore_Chass%C3%A9riau.jpg)
 
 Act III Scene 3, lines 224-278
 *by Anna Kate Horner
+
+#### Othello: Act III Scene 3 {href=https://www.juncture-digital.org/caroline117/essays}
+
+![](https://upload.wikimedia.org/wikipedia/commons/3/3c/Chass%C3%A9riau_-_Othello_Suite_No._6_%28Act_3%2C_Scene_3_Desdemona_talking_to_Cassio%29%2C_1976.18f.jpg)
+
+Act III Scene 3, lines 266-299
+*by Caroline 
 
 #### Othello: Act III Scene 3 {href=https://www.juncture-digital.org/calebpatterson12/essays}
 
