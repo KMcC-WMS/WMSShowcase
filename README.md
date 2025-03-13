@@ -3,6 +3,21 @@
 
 ### Visual Essays {.cards}
 
+#### Othello: Act III Scene 3 {href=https://www.juncture-digital.org/MadeleineHathorn/essays}
+
+![](https://upload.wikimedia.org/wikipedia/commons/f/f6/Lunar_phases_al-Biruni.jpg)
+
+Act III Scene 3, lines 182-223
+*by Madeleine Hathorn
+
+#### Othello: Act III Scene 3 {href=https://www.juncture-digital.org/annakatehorner/essays}
+
+![](https://upload.wikimedia.org/wikipedia/commons/b/b1/Othello_and_Desdemona_in_Venice_by_Th%C3%A9odore_Chass%C3%A9riau.jpg)
+
+Act III Scene 3, lines 224-278
+*by Anna Kate Horner
+
+
 #### Othello: Losing Sleep {href=https://www.juncture-digital.org/mxs9959/essays/othello_project/passage.md}
 
 ![](https://upload.wikimedia.org/wikipedia/commons/2/29/Venetian_grenadiers_attack_an_Ottoman_fort%2C_1717.jpg)
