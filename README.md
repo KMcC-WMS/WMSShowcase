@@ -37,7 +37,7 @@ Act III Scene 3, lines 224-278
 ![](https://upload.wikimedia.org/wikipedia/commons/3/3c/Chass%C3%A9riau_-_Othello_Suite_No._6_%28Act_3%2C_Scene_3_Desdemona_talking_to_Cassio%29%2C_1976.18f.jpg)
 
 Act III Scene 3, lines 266-299
-*by Caroline 
+*by Caroline Werdesheim
 
 #### Othello: Act III Scene 3 {href=https://www.juncture-digital.org/calebpatterson12/essays}
 
