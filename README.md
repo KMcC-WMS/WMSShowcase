@@ -1,4 +1,4 @@
-# Macbeth Showcase
+# Othello Showcase
 > Thank you to Ms K's fabulous 7th period!
 
 ### Visual Essays {.cards}
