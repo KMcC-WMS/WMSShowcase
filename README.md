@@ -10,6 +10,13 @@
 Act III Scene 3, lines 182-223
 *by Madeleine Hathorn
 
+#### Othello: Act III Scene 3 {href=https://www.juncture-digital.org/juliastallworth/essays}
+
+![](https://upload.wikimedia.org/wikipedia/commons/a/a6/Othello%2C_Desdemona_and_Emilia_%281867%29%2C_Daniel_Maclise.jpg)
+
+Act III Scene 3, lines 224-267
+*by Julia Stallworth
+
 #### Othello: Act III Scene 3 {href=https://www.juncture-digital.org/annakatehorner/essays}
 
 ![](https://upload.wikimedia.org/wikipedia/commons/b/b1/Othello_and_Desdemona_in_Venice_by_Th%C3%A9odore_Chass%C3%A9riau.jpg)
@@ -17,6 +24,12 @@ Act III Scene 3, lines 182-223
 Act III Scene 3, lines 224-278
 *by Anna Kate Horner
 
+#### Othello: Act III Scene 3 {href=https://www.juncture-digital.org/calebpatterson12/essays}
+
+![](https://upload.wikimedia.org/wikipedia/commons/1/19/Falconry_equipment_%28OAW%29.png)
+
+Act III Scene 3, lines 279-318
+*by Caleb Patterson
 
 #### Othello: Losing Sleep {href=https://www.juncture-digital.org/mxs9959/essays/othello_project/passage.md}
 
@@ -31,6 +44,13 @@ Act III Scene 3, lines 370-419
 
 Act III Scene 3, lines 502-546
 *by Adelaide Banks
+
+#### The Troubles of Othello and Desdemona {href=https://www.juncture-digital.org/willjackson749/essays}
+
+![](https://upload.wikimedia.org/wikipedia/commons/e/e0/Othello_and_Desdemona_by_Daniel_Maclis.jpg)
+
+Act III Scene 4, lines 59-107
+*by Will Jackson
 
 #### Iago’s Manipulation: The Distort-ability of the Human Psyche {href=https://www.juncture-digital.org/rowangillian/essays}
 
