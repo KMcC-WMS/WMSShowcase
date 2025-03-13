@@ -3,6 +3,13 @@
 
 ### Visual Essays {.cards}
 
+#### Othello: Act II Scene 1 {href=https://www.juncture-digital.org/madelynwickliffe/essays}
+
+![](https://upload.wikimedia.org/wikipedia/commons/a/a3/Am%C3%A9thystre_sceptre2.jpg)
+
+Act II Scene 1, lines 308-334
+*by Madelyn Wickliffe
+
 #### Othello: Act III Scene 3 {href=https://www.juncture-digital.org/MadeleineHathorn/essays}
 
 ![](https://upload.wikimedia.org/wikipedia/commons/f/f6/Lunar_phases_al-Biruni.jpg)
